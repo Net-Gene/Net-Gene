@@ -8,7 +8,7 @@
   - 👯 Open to collaboration **in professional settings**.  
   - 📫 Reach me by **email**, it's the best and most reliable way.
   - 😄 Pronouns: **He/Him**  
-  - ⚡ Fun fact: **I like to stay upbeat and seek out new opportunities that push me forward**  
+  - **I don't like centering a div 😒**  
   - 🏁 My goal is to find meaningful, purpose-driven work.  
   - 🎯 Focused on **becoming qualified for a career that gives me real drive**.
   
